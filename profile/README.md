@@ -1,4 +1,4 @@
-just a dude curious in web and technology in general - work account
+just a curious dude by default: web, tech, and the communities that form around shared obsessions. - work account
 
 contact: me@furkanunsalan.dev
 
